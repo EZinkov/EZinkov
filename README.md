@@ -20,7 +20,7 @@
 
 ###
 
-<p align="left">• 🇺🇦 Originally from Ukraine, but now living in 🇫🇷 France<br>• I speak 🇺🇦 🇺🇸 🇮🇹 🇵🇱 🇫🇷<br>• I love learning and making new friends</p>
+<p align="left">• 🇺🇦 Originally from Ukraine, but now living in 🇫🇷 France<br>• I speak 🇺🇦 🇺🇸 🇮🇹 🇵🇱 🇫🇷<br></p>
 
 ###
 
